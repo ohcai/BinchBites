@@ -1,2 +1,2 @@
 # BinchBites
-The "B
+The "B" in Binch stands for boba. 
