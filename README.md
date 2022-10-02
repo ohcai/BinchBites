@@ -14,3 +14,5 @@ Although we may not be the most consistent in posting, we go out to eat and go o
 We've traveled all throughout California together- from San Francisco to San Diego and everywhere in between. We have also gone to various states like Hawaii and Arizona and are on a mission to go to other countries to try their cuisines. Recently, we've visited Fisherman's Wharf in San Francisco, Mission Bay, San Diego, and Jamaica! Some of our favorite spots we've reviewed include TPTea in Berkeley, Matcha Cafe Maiko in Japantown SF, and Ozen Sushi in Norwalk, California. Even though we aren't the most consistent in posting, we're always eating. 
   
 Follow us on [Instagram](https://www.instagram.com/binchbites/) for more BinchBites content!
+
+![magnolia](magnolia.PNG)
